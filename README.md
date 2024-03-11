@@ -1,4 +1,4 @@
-# Hi there, I'm xtremeteck2 (Samuel J. Ekanem) 👋
+# Hi there, I'm xtremeteck2 👋
 
 ## About Me
 I am a detail-oriented professional with a 
