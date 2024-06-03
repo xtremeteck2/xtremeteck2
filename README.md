@@ -26,7 +26,7 @@ I'm open to collaborating on projects related to regulatory compliance, data ana
 
 ## How to Reach Me
 - **Phone:** +234803 3377 681
-- **Email:** xtremeteck2@gmail.com
+- **Email:** xtremeprooffice@gmail.com
 - **Location:** Lagos, Nigeria
 
 ## Fun Fact
